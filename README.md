@@ -1,6 +1,8 @@
 ### Hi there 👋
 
 ![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=Jinnouchi4796&langs_count=8)
+<img src="https://github.com/Jinnouchi4796/Jinnouchi4796/blob/main/OIG.bVhdGR7CBnioj.z3YpEQ.jpeg?raw=true"_></a>&nbsp
+
 
 ### Use This ❤️
 
